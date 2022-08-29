@@ -5,3 +5,4 @@
 ### Ler não é muito minha praia mas estou tentando me acostumar mais.👻
 ### Gosto de curiosidades históricas e sobre o planeta.
 ### Adoro jogar vídeogames. 
+      😜
